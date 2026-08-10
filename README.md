@@ -46,6 +46,6 @@ Though I may need to look into the file storage on a free GitHub
 account, this portfolio website will be shocasing the lastest and/or
 the best projects
 All other projects or progress/unfinished works will be posted on 
-either my [artstation](https://colorsecho2.artstation.com/) | [instagram] (https://www.instagram.com/oliviaonyiamusic?igsh=dTA2aXA4dDc0azh6/) |  [youtube] (https://youtube.com/@oliviaonyiamusic?si=iOyzdzCbG6FIVNFN/)
+either my [artstation](https://colorsecho2.artstation.com/) ·| [instagram] (https://www.instagram.com/oliviaonyiamusic?igsh=dTA2aXA4dDc0azh6/) · |  [youtube] (https://youtube.com/@oliviaonyiamusic?si=iOyzdzCbG6FIVNFN/)
 
 ## Thanks for read and enjoy the art! 
